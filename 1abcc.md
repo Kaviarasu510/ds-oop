@@ -1,7 +1,6 @@
 # Ex 1
 
 
-![image](https://github.com/user-attachments/assets/7afebaf5-f049-4ee0-9e4c-1c9f19725223)
 
 
 ![image](https://github.com/user-attachments/assets/405fef87-0baf-458b-a5a1-d51e091162b6)
